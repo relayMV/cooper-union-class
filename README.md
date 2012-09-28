@@ -10,4 +10,4 @@ Over-arching Interests
 * forcing semi-anonymous publishing actions to meet the private specificity of time and space
 * what's keeping America up?
 
-- MV
+\-MV
